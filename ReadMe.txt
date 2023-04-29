@@ -1,1 +1,0 @@
-“Aprende las reglas como un profesional, para entonces poder romperlas como artista”. - Pablo Picasso
